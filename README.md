@@ -7,7 +7,7 @@ rtny ttecerctyuegt jkitgsfrh jukikr   utku
 Hi there 👋
 
 
-This is **Amarachi Ugagbe**
+This is **Amarachi Ugagbe**     Click [here](https://www.linkedin.com/in/data-analyst-amarachi-nwoke-ugagbe/)
 
 I am a Petroleum Engineer turned Data Analyst /Business Intelligence Analyst 😃
 
